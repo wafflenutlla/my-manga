@@ -1,0 +1,2 @@
+# my-manga
+Jujutsu Zeqa
